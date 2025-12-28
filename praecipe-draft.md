@@ -34,7 +34,7 @@ The plaintiff prays:
 
 1. That a Writ of Ejectment issue as above set forth.
 2. That upon the return of the said Writ, judgment be entered for the plaintiff for the possession of the said premises.
-3. That the plaintiff recover of the defendant his damages for the wrongful detention of the said land, and for the loss of use and profits thereof, together with the costs of this suit.
+3. That the plaintiff recover of the defendant his damages for the wrongful detention of the said land, and for mesne profits thereof, together with the costs of this suit.
 
 **Respectfully submitted,**
 
